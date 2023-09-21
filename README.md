@@ -21,3 +21,21 @@ Heard in one of the advertisements which aired during cricket match intervals in
 
 #### 6. "You Rascal You" by Hanni El Khatib.
 Heard in Levi's Men's 501 CT "Beautiful Morning" [advertisement](https://www.youtube.com/watch?v=6JwNYPgBhfM) which aired around 2014 or 2015.
+
+#### 7. "Sweet Dreams (Are Made of This)" by Eurythmics.
+A [remixed cover](https://www.youtube.com/watch?v=F0p-vkK4ICg) of this song was heard in Samsung Galaxy Note 3 + Gear's [commercial](https://www.youtube.com/watch?v=qVXD0ZogLR8). The mentioned remixed cover has been sped up here.
+
+#### 8. "Stand by Me" by Skylar Grey.
+Heard in the Nescafe GOLD "For The Moments That Matter" [advertisement](https://www.youtube.com/watch?v=04olB9MPGyk) which aired in 2018 and 2019. This song is a cover of the original Ben E. King [song](https://open.spotify.com/track/3SdTKo2uVsxFblQjpScoHy?si=2b7d8d6f1fe5409d).
+
+#### 9. "Taste the Feeling (Avicii vs. Conrad Sewell)" by Avicii and featuring Conrad Sewell.
+This song was released in promotion of Coca-Cola's "Taste the Feeling" advertisement campaign. What's supposed to be the original version used for the campaign can be found [here](https://www.youtube.com/watch?v=xa6mLZf5HVw).
+
+#### 10. "Ain't No Mountain High Enough" by Marvin Gaye and Tammi Terrell.
+A [cover](https://www.youtube.com/watch?v=CA1FFTAOEpI) for this song was used for the DHL Express worldwide [advertisement](https://www.youtube.com/watch?v=rAPXK-i2xgE) which aired in 2011.
+
+#### 11. "Kiss Me Baby" by Adnan Sami.
+The song was heard in a mobile phone advertisement which prominently featured it's in-built music player. The mentioned advertisement aired in the late 2000s.
+
+#### 12. "Unstoppable" by Sia.
+Heard in the Samsung Galaxy S22 Ultra "The Epic Standard" [advertisement](https://www.youtube.com/watch?v=BBlZiECq8ZA) which aired in 2022.
