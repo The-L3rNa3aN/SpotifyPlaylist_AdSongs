@@ -1,6 +1,8 @@
 # Ad Songs
 ### A detailed document which explains the songs in the playlist and the respective advertisements they were heard in.
 
+Note: This document will be subject to change. Some of the information here will lack the needed references.
+
 Click [here](https://open.spotify.com/playlist/2p3kZP5Hm4aFJfaqEfVwqU?si=2044aff811fd4b50) to go to the playlist on Spotify.
 
 #### 1. "Busy Earnin'" by Jungle.
@@ -39,3 +41,12 @@ The song was heard in a mobile phone advertisement which prominently featured it
 
 #### 12. "Unstoppable" by Sia.
 Heard in the Samsung Galaxy S22 Ultra "The Epic Standard" [advertisement](https://www.youtube.com/watch?v=BBlZiECq8ZA) which aired in 2022.
+
+#### 13. "Slave to The Rhythm" by Michael Jackson
+Heard in the Sony Xperia Z2's "Details Make The Difference" [advertisement](https://www.youtube.com/watch?v=zuhWv7_Fef4) which aired in 2014. A different advertisement featuring it's music player was aired in India (this one is sketchy).
+
+#### 14. "Happy" by Pharrell Williams
+Heard in a Fiat "Because I'm Happy" [advertisement](https://www.youtube.com/watch?v=eZvb9Kde03A) which aired in 2014, featuring the Punto and the Linea.
+
+#### 15. "Keep Walking Anthem" by John Legend and Raja Kumari
+Was heard in Johnnie Walker's "Keep On Walking" [advertisement](https://www.youtube.com/watch?v=EOmwv45cls8) campaign in the summer of 2023.
