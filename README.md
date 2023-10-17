@@ -58,4 +58,13 @@ Heard in one of the Apple iPhone advertisements which aired in 2020 or 2021.
 Heard in the 2008 AXE Chocolate "Chocolate Man" [commercial](https://www.youtube.com/watch?v=I4G3_jovoTc).
 
 #### 18. "I Love Rock 'N Roll" by Joan Jett & the Blackhearts.
-Heard in Jockey's "USA Originals" advertisement which either aired in 2015 or 2017 (sometime after the 4th of July campaign which took place in 2014).
+Heard in Jockey's "USA Originals" [advertisement](https://www.youtube.com/watch?v=LjbWuWFmeXs) which either aired in 2015 or 2017 (sometime after the 4th of July campaign which took place in 2014).
+
+#### 19. "It's Like Love" by Dewayne Everttsmith.
+Heard in the Australia Tourism [advertisement](https://www.youtube.com/watch?v=vUF7ja9ehIs) which was posted in 2013 on YouTube. The said advertisement might have aired earlier.
+
+#### 20. ""It's My Life" by Dr. Alban.
+Featured in the first Sting Energy Drink [advertisement](https://www.youtube.com/watch?v=JJ1ktpuwMRY) campaign in 2017.
+
+#### 21. "Moves Like Jagger" by Maroon 5 and featuring Christina Aguilera.
+An acapella version of this song was heard in the Sony Vaio Sonic "Sound Up" [advertisement](https://www.youtube.com/watch?v=hsIGwau1sJ8) which aired around 2012 or 2013.
