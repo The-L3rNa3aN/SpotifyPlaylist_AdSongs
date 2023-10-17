@@ -67,4 +67,4 @@ Heard in the Australia Tourism [advertisement](https://www.youtube.com/watch?v=v
 Featured in the first Sting Energy Drink [advertisement](https://www.youtube.com/watch?v=JJ1ktpuwMRY) campaign in 2017.
 
 #### 21. "Moves Like Jagger" by Maroon 5 and featuring Christina Aguilera.
-An acapella version of this song was heard in the Sony Vaio Sonic "Sound Up" [advertisement](https://www.youtube.com/watch?v=hsIGwau1sJ8) which aired around 2012 or 2013.
+A beatbox version of this song performed by Shlomo and his musical project "Shlomo and The Lip Factory" was heard in the Sony Vaio Sonic "Sound Up" [advertisement](https://www.youtube.com/watch?v=hsIGwau1sJ8) which aired around 2012 or 2013. This advertisement was [billed](https://www.campaignindia.in/video/sony-gets-shlomo-and-the-lip-factory-to-launch-sonic-range-of-laptops/419045) to be India's first beatboxing competition where participants had to post videos of them beatboxing in order to win laptops from the Sonic series.
