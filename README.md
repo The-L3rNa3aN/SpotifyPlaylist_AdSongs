@@ -68,3 +68,17 @@ Featured in the first Sting Energy Drink [advertisement](https://www.youtube.com
 
 #### 21. "Moves Like Jagger" by Maroon 5 and featuring Christina Aguilera.
 A beatbox version of this song performed by Shlomo and his musical project "Shlomo and The Lip Factory" was heard in the Sony Vaio Sonic "Sound Up" [advertisement](https://www.youtube.com/watch?v=hsIGwau1sJ8) which aired around 2012 or 2013. This advertisement was [billed](https://www.campaignindia.in/video/sony-gets-shlomo-and-the-lip-factory-to-launch-sonic-range-of-laptops/419045) to be India's first beatboxing competition where participants had to post videos of them beatboxing in order to win laptops from the Sonic series.
+
+#### 22. Aline (Italian version) by Christophe.
+Originally sung in French, this one appears in Only Diamonds' "Celebrate Moments of Love" [advertisement](https://www.youtube.com/watch?v=x6HYfbzqYok) starring Ana de Armas which aired in 2021.
+
+#### 23. "It's Your Thing" by The Isley Brothers.
+This song was covered by an unknown person / group in Heineken's "Now You Can" advertisement campaign which aired around 2018.
+
+The campaign featured a series of silent advertisements where the consumer of the said beer tapped on the "0% alcohol content" label of the bottle, only to be later pointed at a mistake they had made without knowing it as a twist.
+
+The advertisements had presented the following skits: ["Parking"](https://www.youtube.com/watch?v=KNZCe3I_X7o), ["Backstage"](https://www.youtube.com/watch?v=YPaGfE851hw), ["Presentation"](https://www.youtube.com/watch?v=XRgqiPO1uuE), ["Locker Room"](https://www.youtube.com/watch?v=xdA7SZH1T94), ["Photobomb"](https://www.youtube.com/watch?v=4FULTlBuk6w) and ["Gas Station"](https://www.youtube.com/watch?v=F_tRENCSQtU).
+(The official Heineken YouTube channel has age-restricted the videos for some reason.)
+
+#### 24. "Diamonds and Guns" by Transplants.
+Heard in the Garnier Fructis commercials in the 2000s. The original commercial aired in the early 2000s while the Indian commercials starring Diana Penty aired in the late 2000s.
