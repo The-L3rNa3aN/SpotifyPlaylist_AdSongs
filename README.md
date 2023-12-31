@@ -81,4 +81,11 @@ The advertisements had presented the following skits: ["Parking"](https://www.yo
 (The official Heineken YouTube channel has age-restricted the videos for some reason.)
 
 #### 24. "Diamonds and Guns" by Transplants.
-Heard in the Garnier Fructis commercials in the 2000s. The original commercial aired in the early 2000s while the Indian commercials starring Diana Penty aired in the late 2000s.
+Heard in the Garnier Fructis commercials in the 2000s. The original commercials aired in the early 2000s while the Indian commercials aired in the late 2000s. Some of the Indian commercials starred Diva Dhawan, Diana Penty and Jyothsna (the third name needs to be verified).
+
+The original US commercials: [Commercial #1](https://www.youtube.com/watch?v=cxtLrR4i56Q), [Commercial #2](https://www.youtube.com/watch?v=GDdXZYJYqgQ), [Commercial #3](https://www.youtube.com/watch?v=ESxNl2nGA_U)
+
+Indian commercials: [Diana Penty's commercial](https://www.youtube.com/watch?v=q-0HRdlAfPM), [Diva Dhawan's commercial](https://www.youtube.com/watch?v=Q87igE57oOg), [Jyothsna?](https://www.youtube.com/watch?v=iQSa3Gk4Wl8), [Commercial #4](https://www.youtube.com/watch?v=DWiDsh7OF3o), [Commercial #5](https://www.youtube.com/watch?v=uzjXm6CYd-Y)
+
+#### 25. "Just a Little Crush" (ft. Shalmali Kholgade) by Mikey McCleary.
+*YET TO BE ADDED*
