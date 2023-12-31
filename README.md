@@ -88,4 +88,7 @@ The original US commercials: [Commercial #1](https://www.youtube.com/watch?v=cxt
 Indian commercials: [Diana Penty's commercial](https://www.youtube.com/watch?v=q-0HRdlAfPM), [Diva Dhawan's commercial](https://www.youtube.com/watch?v=Q87igE57oOg), [Jyothsna?](https://www.youtube.com/watch?v=iQSa3Gk4Wl8), [Commercial #4](https://www.youtube.com/watch?v=DWiDsh7OF3o), [Commercial #5](https://www.youtube.com/watch?v=uzjXm6CYd-Y)
 
 #### 25. "Just a Little Crush" (ft. Shalmali Kholgade) by Mikey McCleary.
-*YET TO BE ADDED*
+Heard in Lakme's Fruit Blast [commercial](https://www.youtube.com/watch?v=My7YSbZio5g) which aired in 2010, featuring Lisa Haydon.
+
+#### 26. "The Little Things You Do" (ft. Anushka Manchanda) by Mikey McCleary.
+*TO BE ADDED*
