@@ -1,7 +1,7 @@
 # Ad Songs
 ### A detailed document which explains the songs in the playlist and the respective advertisements they were heard in.
 
-Note: This document will be subject to change. Some of the information here will lack the needed references.
+Note: This document only lists advertisements I have personally come across and it will be subject to change. Some of the information here may be lacking.
 
 Click [here](https://open.spotify.com/playlist/2p3kZP5Hm4aFJfaqEfVwqU?si=2044aff811fd4b50) to go to the playlist on Spotify.
 
@@ -102,3 +102,9 @@ Note - need to research the correct names alloted for the skits.
 
 #### 28. "Welcome Home" by Radical Face.
 Heard in Nikon's "I Am" [advertisement](https://www.youtube.com/watch?v=nnNQoggSl0U) campaign featuring Robbie Williams that had started as early as 2009 / 2010. The Indian version featuring Mithila Palkar can be found [here](https://www.youtube.com/watch?v=3-ixlE85eQY).
+
+#### 29. "Gangster Of Love" by Johnny "Guitar" Watson.
+Heard in the Axe Click advertisement. The [original](https://www.youtube.com/watch?v=sbBi7J_rslk) starring Ben Affleck and Scoot McNairy aired in 2009, while the Indian [version](https://www.youtube.com/watch?v=TuXAlOWxpJ0) starring Ranbir Kapoor aired in 2013. The skits in both ads feature the same gist, albiet taking place during slightly different scenarios.
+
+#### 30. "Missione A Bombay" by Nicola Conte.
+Heard in another Garnier Fructis [advertisement](https://www.youtube.com/watch?v=YoV_xfvTViA) which aired in 2011. The gist of this advertisement might have been inspired by Garnier's ["Long and Strong"](https://www.youtube.com/watch?v=GDdXZYJYqgQ) advertisement which aired in 2006 and it also makes use of Transplants' "Diamonds and Guns" as their background score like most Fructis ads.
