@@ -101,6 +101,4 @@ More information related to this set of advertisements are found [here](https://
 Note - need to research the correct names alloted for the skits.
 
 #### 28. "Welcome Home" by Radical Face.
-Heard in Nikon's "I Am" [advertisement](https://www.youtube.com/watch?v=nnNQoggSl0U) campaign featuring Robbie Williams that had started as early as 2009 / 2010. The Indian version* can be found [here](https://www.youtube.com/watch?v=3-ixlE85eQY).
-
-*At 0:22, is it Mithila Palkar?
+Heard in Nikon's "I Am" [advertisement](https://www.youtube.com/watch?v=nnNQoggSl0U) campaign featuring Robbie Williams that had started as early as 2009 / 2010. The Indian version featuring Mithila Palkar can be found [here](https://www.youtube.com/watch?v=3-ixlE85eQY).
