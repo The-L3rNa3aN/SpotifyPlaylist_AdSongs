@@ -91,4 +91,16 @@ Indian commercials: [Diana Penty's commercial](https://www.youtube.com/watch?v=q
 Heard in Lakme's Fruit Blast [commercial](https://www.youtube.com/watch?v=My7YSbZio5g) which aired in 2010, featuring Lisa Haydon.
 
 #### 26. "The Little Things You Do" (ft. Anushka Manchanda) by Mikey McCleary.
-*TO BE ADDED*
+This song was featured in Vodafone's Delights [advertisement](https://www.youtube.com/watch?v=wtDYZHGzGLE) campaign featuring two school-going girls who are close to each other. The three skits (labelled "Classroom", "Cycle" and "Annual Day") have been color-graded to highlight anything red out of the desaturated world.
+
+#### 27. "Oh I Feel Wonderful" by Mike McCleary.
+Heard in another set of [advertisements](https://www.youtube.com/watch?v=J2KrM4-u7g4) related to Vodafone Delights, this time featuring a young boy interacting with an old man.
+The link above feature the "Newspaper", "Pen" and "Harmonica" skits. Here are links to more skits: - [Carom](https://www.youtube.com/watch?v=Rj9-5zwAzTI), [Plane](https://www.youtube.com/watch?v=TD6JGh9qNmg)
+
+More information related to this set of advertisements are found [here](https://www.campaignindia.in/video/vodafone-delights-again/416730).
+Note - need to research the correct names alloted for the skits.
+
+#### 28. "Welcome Home" by Radical Face.
+Heard in Nikon's "I Am" [advertisement](https://www.youtube.com/watch?v=nnNQoggSl0U) campaign featuring Robbie Williams that had started as early as 2009 / 2010. The Indian version* can be found [here](https://www.youtube.com/watch?v=3-ixlE85eQY).
+
+*At 0:22, is it Mithila Palkar?
